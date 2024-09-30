@@ -1,0 +1,1 @@
+Mini Servo Gripper (Modified) by SANGER_A2 on Thingiverse: https://www.thingiverse.com/thing:2761052
